@@ -1,0 +1,1 @@
+# MSU statistics course
